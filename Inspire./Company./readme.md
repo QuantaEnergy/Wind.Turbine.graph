@@ -1,1 +1,2 @@
-https://avantgarde.energy/
+- https://avantgarde.energy/
+- https://www.bridgestone.com/bwsc/stories/article/2019/11/13-2.html
