@@ -1,0 +1,4 @@
+https://www.google.com/search?q=vertical+axis+wind+turbine
+https://www.google.com/search?q=vertical+axis+wind+turbine+types
+https://www.google.com/search?q=types+vertical+axis+wind+turbine
+https://www.google.com/search?q=types+of+vertical+axis+wind+turbine
