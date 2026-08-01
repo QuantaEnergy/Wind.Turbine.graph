@@ -1,0 +1,1 @@
+- [Performance study of low-speed wind energy harvesting by micro wind turbine system](https://www.sciencedirect.com/science/article/pii/S2352484725001313)
