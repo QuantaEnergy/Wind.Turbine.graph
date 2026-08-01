@@ -1,0 +1,2 @@
+- https://www.facebook.com/groups/windturbinemakers/posts/9057709720951967/
+- https://www.reddit.com/r/AskEngineers/comments/19drz89/is_it_possible_to_make_a_smaller_wind_turbine_to/
