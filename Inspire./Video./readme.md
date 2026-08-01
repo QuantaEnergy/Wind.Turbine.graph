@@ -1,0 +1,2 @@
+- [6 Genius Vertical Wind Turbines That Will Revolutionize Home Wind Power](https://youtu.be/1cLJMBald_c)
+- [These 6 Wind Turbines Are The Future Of Home Power](https://youtu.be/enePU6YCdWo)
